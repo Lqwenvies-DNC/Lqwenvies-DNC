@@ -4,7 +4,7 @@
 - +Fyodor Dostoevsky in BSD.
 - +Lelouch Vi Britannia in Code Geass.
 - +Cid Kagenou in Shadow Garden.
-- + i'm in BSD/Genshin/HSR/CG/SG/BlueLock/ Hakyuu/.etc...
+i'm in BSD/Genshin/HSR/CG/SG/BlueLock/ Hakyuu/.etc...
 - my pronouns: They/Them/it/He/Him/Her/She
 - Fun fact: i like sj, dj, i'll always talk about gay stuff.
 - PONIES & PEOPLE SHOULD READ!!.
